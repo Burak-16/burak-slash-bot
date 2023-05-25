@@ -1,1 +1,1 @@
-# burak-slash-bot
+Youtube Kanalıma Abone Olup Like Atmayı Unutmayınız.. Sevgilerr.
